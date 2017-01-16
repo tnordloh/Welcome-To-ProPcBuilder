@@ -1,4 +1,4 @@
-# Custom PC Building
+# Custom PC Build
 I will work with you to ensure you get EXACTLY the specs you want for your PC. I take the time to understand your individual needs and daily computer habits so I can recommend the best build for you. I only use new parts so they come with the manufacturer's guarantee. I compare product specifications and price to find you the most PC for your dollar. You purchase the recommended parts, I assemble then test compatability and fuctionality. Denver and surrounding areas only. 
 
 
